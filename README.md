@@ -33,3 +33,13 @@ Making box on Laser machine
 Процесс резки на лазерном станке:
 
 
+https://github.com/Evgenpump71/Box-1/assets/144489649/d76f924c-f64a-48a7-8d5d-5e12288d280b
+
+### Полученное изделие в работе
+
+
+
+
+
+
+
