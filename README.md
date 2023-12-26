@@ -37,6 +37,7 @@ https://github.com/Evgenpump71/Box-1/assets/144489649/d76f924c-f64a-48a7-8d5d-5e
 
 ### Полученное изделие в работе
 
+![photo_2023-12-26_17-24-12](https://github.com/Evgenpump71/Box-1/assets/144489649/d2d49a40-c3d5-4b45-a3c1-a4e894350d10)
 
 
 
